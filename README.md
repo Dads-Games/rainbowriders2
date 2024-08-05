@@ -1,5 +1,5 @@
 # Rainbow Riders 2!
-The sqeual to the soon to be award winning video game - Rainbow Riders!
+The squeal to the soon to be award winning video game - Rainbow Riders!
 
 # Dads' Games
 Games made by Dads
